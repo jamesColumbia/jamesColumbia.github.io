@@ -1,5 +1,4 @@
-# jamesColumbia.github.io
-Terms and Conditions for Super Task
+# Terms and Conditions for Super Task
 
 Terms and Conditions
 Last updated: December 09, 2022
